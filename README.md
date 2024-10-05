@@ -1,1 +1,1 @@
-Rrivacy Policy - "Interval Walking Timer"
+Privacy Policy - "Interval Walking Timer"
